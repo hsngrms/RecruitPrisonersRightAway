@@ -1,0 +1,1 @@
+﻿Recruit Prisoners Right Away's mod page on Nexus: https://www.nexusmods.com/mountandblade2bannerlord/mods/1833
